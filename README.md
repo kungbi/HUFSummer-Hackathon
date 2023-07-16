@@ -1,1 +1,0 @@
-# HUFSummer-Hackathon
